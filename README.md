@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @bbenglish
+- 👀 I’m interested in English education, Extensive Viewing in particular.
+- 🌱 I’m currently doing research about Extensive Viewing in form of CALL in distance education.
+- 💞️ I’m looking to collaborate with on-site educationists.
+- 📫 How to reach me: bestbanana.tw@gmail.com
